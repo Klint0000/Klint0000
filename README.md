@@ -34,8 +34,8 @@ I’m constantly learning new skills and exploring creative solutions to everyda
 
 ## 📫 Connect with Me
 - **Email:** okporclinton33@gmail.com
-- **LinkedIn:** 
-- **GitHub:** [YourGitHubProfile](https://github.com/YourUsername)
+- **LinkedIn:** www.linkedin.com/in/clinton-o-75a9762ba
+- **GitHub:** https://github.com/Klint0000
 
 ---
 
